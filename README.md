@@ -1,1 +1,1 @@
-html fr coffe store
+html for coffe store
